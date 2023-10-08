@@ -1,1 +1,1 @@
-# The Famous, the Political, and the Local
+# Politics, Celebrity, and Local News
